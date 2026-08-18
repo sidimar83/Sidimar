@@ -202,7 +202,7 @@ Aplicando **22 anos de experiência** em ambientes corporativos críticos para f
 
 - 💼 **LinkedIn**: [linkedin.com/in/sidimar1983](https://www.linkedin.com/in/sidimar1983/)
 - 💻 **GitHub**: [github.com/sidimar83](https://github.com/sidimar83)
-- 📧 **Email**: Disponível no LinkedIn
+- 📧 **Email**: sidimar.vianna@gmail.com
 
 ---
 
